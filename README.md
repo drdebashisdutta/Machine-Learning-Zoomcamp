@@ -149,7 +149,7 @@ Interested in supporting our community? Reach out to [info@drdebashisdutta.com](
 ## About AI for ALL
 
 <p align="center">
-  <img width="40%" src="#" alt="drdebashisdutta.com">
+  <img width="40%" src="https://drdebashisdutta.com/wp-content/uploads/2024/12/1734226428121-800x1067.jpeg" alt="drdebashisdutta.com">
 </p>
 
 <p align="center">
